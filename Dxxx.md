@@ -1,5 +1,5 @@
 ![InShot.gif](https://github.com/ThCuler/Dxprit/blob/main/InShot_%DB%B2%DB%B0%DB%B2%DB%B4%DB%B1%DB%B2%DB%B2%DB%B0_%DB%B1%DB%B7%DB%B1%DB%B7%DB%B0%DB%B9%DB%B3%DB%B4%DB%B3.gif)
-
+![InShot.gif](https://github.com/ThCuler/Dxprit/blob/main/InShot_%DB%B2%DB%B0%DB%B2%DB%B4%DB%B1%DB%B2%DB%B2%DB%B0_%DB%B1%DB%B8%DB%B2%DB%B5%DB%B2%DB%B1%DB%B4%DB%B9%DB%B0.gif)
 
 
 
